@@ -1,1 +1,1 @@
-Using blockchain and security to connect and protect bussiness and people around the world.
+Using blockchain and security to connect and protect business and people around the world.
